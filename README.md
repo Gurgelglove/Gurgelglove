@@ -7,6 +7,6 @@
 
 - 📄 Know about my experiences: www.linkedin.com/in/giovanna-de-castro-cavalcante-gurgel-a302a1279
 
-- ⚡ Fun fact **Fun fact I love : cachorros , gatos e CAFÉ**
+- ⚡ Fun **Fun fact I love : cachorros , gatos e CAFÉ**
 
 
