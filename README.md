@@ -1,4 +1,4 @@
-<h1 align="center">Hi 👋, I'Giovana Gurgel</h1>
+<h1 align="center">Hi 👋, Sou Giovana Gurgel</h1>
 
 
 - 💬 Ask me about ****
@@ -7,6 +7,6 @@
 
 - 📄 Know about my experiences: www.linkedin.com/in/giovanna-de-castro-cavalcante-gurgel-a302a1279
 
-- ⚡ Fun fact **Fun fact I love : **cachorros , gatos e CAFÉ**
+- ⚡ Fun fact **Fun fact I love : cachorros , gatos e CAFÉ**
 
 
