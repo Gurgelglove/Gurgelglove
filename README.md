@@ -1,5 +1,6 @@
 <h1 align="center">Hi 👋, Sou Giovana Gurgel</h1>
 
+-falar pouco de mim 
 
 - 💬 Ask me about ****
 
